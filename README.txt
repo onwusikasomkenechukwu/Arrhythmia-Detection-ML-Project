@@ -11,5 +11,5 @@ LinkedIn: https://www.linkedin.com/in/somkenechukwu-onwusika-3b26ab293/
 
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------
-This project is dedicated to my dad.
+
 Thank you.
